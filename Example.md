@@ -4,6 +4,8 @@ Held at the Fawkes Training Room on 5th November from 13:00 to 17:00
 ### Trainers
 Ash.    
 Mark.   
+Julie. 
+
 ## Directions 
 The training room is located on the first floor of the Craik-Marshall building. 
  Map: [Craik-Marshall building] https://maps.google.co.uk/maps?hl=en-GB&q=Craik-Marshall+Building,+Downing+Site,+Cambridge&source=calendar
